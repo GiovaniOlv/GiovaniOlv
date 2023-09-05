@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @GiovaniOlv
+- 👀 I’m interested in learn codes and work with them
+- 🌱 I’m currently learning JAVA and C#
+- 📫 How to reach me:
+- instagram: @rato.olv
+- discord: @ratoemo  //  Rato#4170
+- email: gi.passador.oliveira@gmail.com
+- LinkedIn: Giovani Passador Oliveira
